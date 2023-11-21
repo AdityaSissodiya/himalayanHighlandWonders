@@ -1,2 +1,2 @@
-# himalyanHighlandWonders
+# himalayanHighlandWonders
 The Guardian Spirits
